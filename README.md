@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi guys. Nitesh here. check out [my portfolio](https://www.niteshlohiya.com.np/)
+Hi guys. Nitesh here. check out my portfolio at [niteshlohiya.com.np](https://www.niteshlohiya.com.np/)
 
 
 ## 🌐 Socials:
